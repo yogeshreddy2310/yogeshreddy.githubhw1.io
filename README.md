@@ -1,2 +1,0 @@
-# yogeshreddy.github.io
- 
